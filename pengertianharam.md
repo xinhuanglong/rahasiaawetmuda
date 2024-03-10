@@ -1,0 +1,1 @@
+Haram adalah salah satu bentuk hukum taklifi, yang dibahas secara khusus oleh ulama ushul fikih. Menurut ulama ushul fikih, terdapat dua definisi haram, yaitu dari segi batasan dan esensinya, serta dari segi bentuk dan sifatnya.
